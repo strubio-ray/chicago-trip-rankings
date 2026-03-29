@@ -1,3 +1,7 @@
+---
+layout: default
+---
+
 # Chicago Airbnb — Final Rankings
 
 ## Quick Comparison
