@@ -42,19 +42,43 @@
 <td><img src="https://a0.muscache.com/im/pictures/prohost-api/Hosting-18687892/original/5eb2c185-df0d-446c-81ea-b21c5b66f8f2.jpeg?im_w=720" width="400"></td>
 </tr><tr>
 <td><img src="https://a0.muscache.com/im/pictures/prohost-api/Hosting-18687892/original/6f72343c-d98e-433d-8e74-d5e9a6e91a12.jpeg?im_w=720" width="400"></td>
-<td><img src="https://a0.muscache.com/im/pictures/prohost-api/Hosting-18687892/original/fc0bf9b2-2150-462d-acdb-3669049685d5.jpeg?im_w=720" width="400"></td>
+<td><img src="https://a0.muscache.com/im/pictures/prohost-api/Hosting-18687892/original/5b81a866-5e01-4db3-bd0d-ad4db161b99c.jpeg?im_w=720" width="400"></td>
 </tr><tr>
+<td><img src="https://a0.muscache.com/im/pictures/prohost-api/Hosting-18687892/original/fc0bf9b2-2150-462d-acdb-3669049685d5.jpeg?im_w=720" width="400"></td>
 <td><img src="https://a0.muscache.com/im/pictures/prohost-api/Hosting-18687892/original/27f6929d-30c6-4268-ae47-8fdae59f53cb.jpeg?im_w=720" width="400"></td>
-<td></td>
+</tr><tr>
+<td><img src="https://a0.muscache.com/im/pictures/prohost-api/Hosting-18687892/original/b4a6bdb8-ebb7-4639-bde6-532d1cbb9cb7.jpeg?im_w=720" width="400"></td>
+<td><img src="https://a0.muscache.com/im/pictures/prohost-api/Hosting-18687892/original/36e16403-6dd4-4060-a11d-9f1d1f72eec2.jpeg?im_w=720" width="400"></td>
+</tr><tr>
+<td><img src="https://a0.muscache.com/im/pictures/prohost-api/Hosting-18687892/original/4170d5a1-561c-425e-874f-975124241e49.jpeg?im_w=720" width="400"></td>
+<td><img src="https://a0.muscache.com/im/pictures/prohost-api/Hosting-18687892/original/e0ba7d1c-5c83-4b1e-90a2-87a8bab834d8.jpeg?im_w=720" width="400"></td>
+</tr><tr>
+<td><img src="https://a0.muscache.com/im/pictures/prohost-api/Hosting-18687892/original/c62ed26d-68ae-4edc-bcae-00c9556e5def.jpeg?im_w=720" width="400"></td>
+<td><img src="https://a0.muscache.com/im/pictures/prohost-api/Hosting-18687892/original/04e70394-e93a-48fd-985b-85b090a02a55.jpeg?im_w=720" width="400"></td>
+</tr><tr>
+<td><img src="https://a0.muscache.com/im/pictures/prohost-api/Hosting-18687892/original/1f9885e7-c3f2-4799-bb4f-b474d5b129f2.jpeg?im_w=720" width="400"></td>
+<td><img src="https://a0.muscache.com/im/pictures/prohost-api/Hosting-18687892/original/74cdf254-edce-4332-8836-01e3562415d2.jpeg?im_w=720" width="400"></td>
+</tr><tr>
+<td><img src="https://a0.muscache.com/im/pictures/prohost-api/Hosting-18687892/original/69e68825-9a18-4e6f-8932-d91a00c461d0.jpeg?im_w=720" width="400"></td>
+<td><img src="https://a0.muscache.com/im/pictures/prohost-api/Hosting-18687892/original/96804072-f59c-4d46-8d47-5fc8045181b6.jpeg?im_w=720" width="400"></td>
+</tr><tr>
+<td><img src="https://a0.muscache.com/im/pictures/prohost-api/Hosting-18687892/original/bc756634-b2bc-4d27-850d-4b6ed2efd673.jpeg?im_w=720" width="400"></td>
+<td><img src="https://a0.muscache.com/im/pictures/prohost-api/Hosting-18687892/original/e2dc0bef-a0fa-4493-ba41-e2167ef7fc56.jpeg?im_w=720" width="400"></td>
+</tr><tr>
+<td><img src="https://a0.muscache.com/im/pictures/prohost-api/Hosting-18687892/original/229b16b2-7cce-416e-9964-fc212d78c140.jpeg?im_w=720" width="400"></td>
+<td><img src="https://a0.muscache.com/im/pictures/prohost-api/Hosting-18687892/original/86a7e46e-41d2-41b7-82b6-f4e7fcda71ec.jpeg?im_w=720" width="400"></td>
+</tr><tr>
+<td><img src="https://a0.muscache.com/im/pictures/prohost-api/Hosting-18687892/original/bf5ae292-c9cf-4ebe-9ee0-0ac476841bff.jpeg?im_w=720" width="400"></td>
+<td><img src="https://a0.muscache.com/im/pictures/prohost-api/Hosting-18687892/original/cb0da5e9-46be-4a7b-9b1f-23f4e71c54ca.jpeg?im_w=720" width="400"></td>
 </tr></table>
 
 ### Why #1
 
-The classic Chicago duplex is an icon of the city's residential character — staying in one is a distinctly Chicago experience. This listing has the deepest track record on the entire list: 307 reviews and still a Guest Favorite. Maintaining that status across 307 stays is not a fluke. It sits in the heart of Logan Square with walkable access to Scofflaw, The Whistler, Longman & Eagle, and the rest of the Milwaukee Ave corridor. Three bedrooms mean everyone gets their own room. The duplex layout provides genuine separation between floors — someone can crash early upstairs while others stream a movie downstairs. Every major streaming service is loaded on the TV for nights in. At $1,544, it's also the cheapest of the two Logan Square options. The one downside: no notable outdoor space.
+The classic Chicago duplex is an icon of the city's residential character — staying in one is a distinctly Chicago experience. This listing has the deepest track record on the entire list: 307 reviews and still a Guest Favorite. Maintaining that status across 307 stays is not a fluke. It sits in the heart of Logan Square with walkable access to Scofflaw, The Whistler, Longman & Eagle, and the rest of the Milwaukee Ave corridor. Three bedrooms mean everyone gets their own room. The duplex layout provides genuine separation between floors — someone can crash early upstairs while others stream a movie downstairs. Every major streaming service is loaded on the TV for nights in. At $1,544, it's also the cheapest of the two Logan Square options. The listing undersells the outdoor situation: an enclosed porch off the kitchen opens onto a shared patio with lounge seating.
 
 ### The Space
 
-A Chicago two-flat duplex — the iconic residential form of the city. The multi-level layout is the key differentiator: upper and lower floors provide real privacy for a group of 3. Someone sleeping upstairs has genuine separation from late-night TV watchers on the lower level. Three bedrooms (queen, king, double + single) mean everyone gets their own room and door. Two full bathrooms eliminate morning friction. The fully stocked kitchen, dedicated workspace, and comprehensive streaming setup (every major service on a 40" HDTV) make this a place you can live in comfortably for 6 nights. The garage parking spot adds practical convenience even without a car — secure, covered access to the building.
+A Chicago two-flat duplex — the iconic residential form of the city. The multi-level layout is the key differentiator: upper and lower floors provide real privacy for a group of 3. Someone sleeping upstairs has genuine separation from late-night TV watchers on the lower level. Three bedrooms (queen, king, double + single) mean everyone gets their own room and door. Two full bathrooms eliminate morning friction. The fully stocked kitchen, dedicated workspace, and comprehensive streaming setup (every major service on a 40" HDTV) make this a place you can live in comfortably for 6 nights. The garage parking spot adds practical convenience even without a car — secure, covered access to the building. What the listing doesn't make obvious: an enclosed porch off the kitchen leads to a shared patio and backyard — real outdoor space with lounge furniture, a wooden deck, and a fenced-in yard. For a Chicago duplex, that's a genuine bonus.
 
 ### The Neighborhood — Logan Square (Monument Area)
 
@@ -190,23 +214,74 @@ Same Logan Square neighborhood, restaurants, and nightlife as #1 — see full li
 <td><img src="https://a0.muscache.com/im/pictures/hosting/Hosting-1369733738577166114/original/8545071b-fe1e-4aea-bae3-e4d358b7b608.jpeg?im_w=720" width="400"></td>
 <td><img src="https://a0.muscache.com/im/pictures/hosting/Hosting-1369733738577166114/original/f743c816-9793-42d7-a7a4-cedf6453d44f.jpeg?im_w=720" width="400"></td>
 </tr><tr>
-<td><img src="https://a0.muscache.com/im/pictures/hosting/Hosting-1369733738577166114/original/d8332ede-d504-448b-977d-1540a070e3ce.jpeg?im_w=720" width="400"></td>
 <td><img src="https://a0.muscache.com/im/pictures/hosting/Hosting-1369733738577166114/original/99d10aad-f925-4cf9-9597-33375c1a0f29.jpeg?im_w=720" width="400"></td>
-</tr><tr>
 <td><img src="https://a0.muscache.com/im/pictures/hosting/Hosting-1369733738577166114/original/18c1bdee-1448-46c9-bfcd-39f8b6356301.jpeg?im_w=720" width="400"></td>
-<td><img src="https://a0.muscache.com/im/pictures/hosting/Hosting-1369733738577166114/original/9e9b9c69-3d00-4a9d-b856-9b6a4e8f8e16.jpeg?im_w=720" width="400"></td>
 </tr><tr>
+<td><img src="https://a0.muscache.com/im/pictures/hosting/Hosting-1369733738577166114/original/9e9b9c69-3d00-4a9d-b856-9b6a4e8f8e16.jpeg?im_w=720" width="400"></td>
+<td><img src="https://a0.muscache.com/im/pictures/hosting/Hosting-1369733738577166114/original/4e3e396f-7cf6-44ce-9830-c6a02217c4c0.jpeg?im_w=720" width="400"></td>
+</tr><tr>
+<td><img src="https://a0.muscache.com/im/pictures/hosting/Hosting-1369733738577166114/original/1c4ab7f3-ad7e-43fd-a706-84488953eb7e.jpeg?im_w=720" width="400"></td>
+<td><img src="https://a0.muscache.com/im/pictures/hosting/Hosting-1369733738577166114/original/d483399f-6db9-40b6-8700-f67f4a45c301.jpeg?im_w=720" width="400"></td>
+</tr><tr>
+<td><img src="https://a0.muscache.com/im/pictures/hosting/Hosting-1369733738577166114/original/dc76c497-def6-4263-80d1-3f934d18ebdf.jpeg?im_w=720" width="400"></td>
+<td><img src="https://a0.muscache.com/im/pictures/hosting/Hosting-1369733738577166114/original/9c631602-9bc9-477e-b899-2fdd9606e9c1.jpeg?im_w=720" width="400"></td>
+</tr><tr>
+<td><img src="https://a0.muscache.com/im/pictures/prohost-api/Hosting-1369733738577166114/original/77b014d3-c44c-4adb-9e85-bcf154311f47.jpeg?im_w=720" width="400"></td>
+<td><img src="https://a0.muscache.com/im/pictures/prohost-api/Hosting-1369733738577166114/original/c29e9c34-68f8-45e4-a8d5-a77990b3ba94.jpeg?im_w=720" width="400"></td>
+</tr><tr>
+<td><img src="https://a0.muscache.com/im/pictures/hosting/Hosting-1369733738577166114/original/d8332ede-d504-448b-977d-1540a070e3ce.jpeg?im_w=720" width="400"></td>
+<td><img src="https://a0.muscache.com/im/pictures/hosting/Hosting-1369733738577166114/original/faa36d21-d7f5-4c1b-912b-158ab8c36e00.jpeg?im_w=720" width="400"></td>
+</tr><tr>
+<td><img src="https://a0.muscache.com/im/pictures/hosting/Hosting-1369733738577166114/original/4c1e4fd4-ce51-4f69-9687-563a19f53cd1.jpeg?im_w=720" width="400"></td>
+<td><img src="https://a0.muscache.com/im/pictures/prohost-api/Hosting-1369733738577166114/original/37eb2783-5263-4251-b8fe-f776003ac10a.jpeg?im_w=720" width="400"></td>
+</tr><tr>
+<td><img src="https://a0.muscache.com/im/pictures/hosting/Hosting-1369733738577166114/original/ce28bf3a-058e-4132-97a3-eae82ad5db46.jpeg?im_w=720" width="400"></td>
+<td><img src="https://a0.muscache.com/im/pictures/hosting/Hosting-1369733738577166114/original/29f7b2cb-bf2b-4223-8a27-f847f1479328.jpeg?im_w=720" width="400"></td>
+</tr><tr>
+<td><img src="https://a0.muscache.com/im/pictures/hosting/Hosting-1369733738577166114/original/fc7134df-2f2b-4538-b08f-7d01c2b8c6c7.jpeg?im_w=720" width="400"></td>
+<td><img src="https://a0.muscache.com/im/pictures/hosting/Hosting-1369733738577166114/original/57584f19-8965-47f1-8b37-48b356614101.jpeg?im_w=720" width="400"></td>
+</tr><tr>
+<td><img src="https://a0.muscache.com/im/pictures/hosting/Hosting-1369733738577166114/original/491cc120-45f6-463f-9e60-a0f2fefcb3f1.jpeg?im_w=720" width="400"></td>
+<td><img src="https://a0.muscache.com/im/pictures/hosting/Hosting-1369733738577166114/original/250e5185-f4f5-4068-98ad-c1c0f849ba97.jpeg?im_w=720" width="400"></td>
+</tr><tr>
+<td><img src="https://a0.muscache.com/im/pictures/hosting/Hosting-1369733738577166114/original/0f6d861c-85ba-4b67-93a8-2d9c2a5e2a79.jpeg?im_w=720" width="400"></td>
+<td><img src="https://a0.muscache.com/im/pictures/hosting/Hosting-1369733738577166114/original/d3a30f2d-562d-4a88-8db7-dd58c725d548.jpeg?im_w=720" width="400"></td>
+</tr><tr>
+<td><img src="https://a0.muscache.com/im/pictures/hosting/Hosting-1369733738577166114/original/10dc8f25-7c2c-4d57-ba31-ccbe614d4394.jpeg?im_w=720" width="400"></td>
+<td><img src="https://a0.muscache.com/im/pictures/hosting/Hosting-1369733738577166114/original/6709a063-2087-4cb7-badc-0bd07c05fac7.jpeg?im_w=720" width="400"></td>
+</tr><tr>
+<td><img src="https://a0.muscache.com/im/pictures/hosting/Hosting-1369733738577166114/original/ccf1b442-25ca-4052-b4de-c55bf945e556.jpeg?im_w=720" width="400"></td>
+<td><img src="https://a0.muscache.com/im/pictures/hosting/Hosting-1369733738577166114/original/c3bbfcec-27f5-4830-aeb8-6e0bb60c85c0.jpeg?im_w=720" width="400"></td>
+</tr><tr>
+<td><img src="https://a0.muscache.com/im/pictures/hosting/Hosting-1369733738577166114/original/ec082fb9-45e8-453a-bf5b-36a16ce86703.jpeg?im_w=720" width="400"></td>
+<td><img src="https://a0.muscache.com/im/pictures/hosting/Hosting-1369733738577166114/original/d70b501d-5481-4abf-b48e-b50bd8c27ba2.jpeg?im_w=720" width="400"></td>
+</tr><tr>
+<td><img src="https://a0.muscache.com/im/pictures/hosting/Hosting-1369733738577166114/original/35253d94-1567-4fc8-b036-4489fffa143b.jpeg?im_w=720" width="400"></td>
+<td><img src="https://a0.muscache.com/im/pictures/hosting/Hosting-1369733738577166114/original/6d49e9eb-bcc7-4a7b-93f3-bf8e402ed73b.jpeg?im_w=720" width="400"></td>
+</tr><tr>
+<td><img src="https://a0.muscache.com/im/pictures/hosting/Hosting-1369733738577166114/original/57091aae-8836-481b-82ab-fd0703d2018c.jpeg?im_w=720" width="400"></td>
 <td><img src="https://a0.muscache.com/im/pictures/hosting/Hosting-1369733738577166114/original/5bbc83e4-16a6-48de-8609-f1f34933ef02.jpeg?im_w=720" width="400"></td>
+</tr><tr>
+<td><img src="https://a0.muscache.com/im/pictures/hosting/Hosting-1369733738577166114/original/dff91e3e-7385-48f3-bc5d-6941a82f69bd.jpeg?im_w=720" width="400"></td>
+<td><img src="https://a0.muscache.com/im/pictures/hosting/Hosting-1369733738577166114/original/b632f06e-109f-4ed0-88bd-cdfd109fb79e.jpeg?im_w=720" width="400"></td>
+</tr><tr>
+<td><img src="https://a0.muscache.com/im/pictures/hosting/Hosting-1369733738577166114/original/a7ae0b2e-ddbe-4820-bce0-3890a36d3610.jpeg?im_w=720" width="400"></td>
+<td><img src="https://a0.muscache.com/im/pictures/hosting/Hosting-1369733738577166114/original/0f381280-001a-411c-b622-1fd1dc426d4f.jpeg?im_w=720" width="400"></td>
+</tr><tr>
+<td><img src="https://a0.muscache.com/im/pictures/hosting/Hosting-1369733738577166114/original/5683744b-2adb-4528-95e4-78463dfd0001.jpeg?im_w=720" width="400"></td>
 <td><img src="https://a0.muscache.com/im/pictures/hosting/Hosting-1369733738577166114/original/1aec1eec-7535-4a7e-9e75-171457cf1f39.jpeg?im_w=720" width="400"></td>
 </tr><tr>
-<td><img src="https://a0.muscache.com/im/pictures/hosting/Hosting-1369733738577166114/original/4e3e396f-7cf6-44ce-9830-c6a02217c4c0.jpeg?im_w=720" width="400"></td>
-<td><img src="https://a0.muscache.com/im/pictures/hosting/Hosting-1369733738577166114/original/1c4ab7f3-ad7e-43fd-a706-84488953eb7e.jpeg?im_w=720" width="400"></td>
+<td><img src="https://a0.muscache.com/im/pictures/hosting/Hosting-1369733738577166114/original/58a5dea6-3bc7-4514-b0a1-0633661b7386.jpeg?im_w=720" width="400"></td>
+<td><img src="https://a0.muscache.com/im/pictures/hosting/Hosting-1369733738577166114/original/6bacae10-90c5-4daf-87d0-6fb76fcd2a09.jpeg?im_w=720" width="400"></td>
 </tr><tr>
-<td><img src="https://a0.muscache.com/im/pictures/hosting/Hosting-1369733738577166114/original/d483399f-6db9-40b6-8700-f67f4a45c301.jpeg?im_w=720" width="400"></td>
-<td><img src="https://a0.muscache.com/im/pictures/hosting/Hosting-1369733738577166114/original/dc76c497-def6-4263-80d1-3f934d18ebdf.jpeg?im_w=720" width="400"></td>
+<td><img src="https://a0.muscache.com/im/pictures/hosting/Hosting-1369733738577166114/original/8095a4c3-de3d-4e1b-8136-076702bc5ec8.jpeg?im_w=720" width="400"></td>
+<td><img src="https://a0.muscache.com/im/pictures/hosting/Hosting-1369733738577166114/original/7f5cab36-1a37-403e-a102-492e4cd9938c.jpeg?im_w=720" width="400"></td>
 </tr><tr>
-<td><img src="https://a0.muscache.com/im/pictures/hosting/Hosting-1369733738577166114/original/9c631602-9bc9-477e-b899-2fdd9606e9c1.jpeg?im_w=720" width="400"></td>
-<td></td>
+<td><img src="https://a0.muscache.com/im/pictures/hosting/Hosting-1369733738577166114/original/069b0944-4c8c-40d2-9929-27ac89741c25.jpeg?im_w=720" width="400"></td>
+<td><img src="https://a0.muscache.com/im/pictures/hosting/Hosting-1369733738577166114/original/15cd8941-5ece-4a34-924c-b81124e5ebc2.jpeg?im_w=720" width="400"></td>
+</tr><tr>
+<td><img src="https://a0.muscache.com/im/pictures/hosting/Hosting-1369733738577166114/original/c77f0f40-09d3-4dd6-a12d-b387bf6255f7.jpeg?im_w=720" width="400"></td>
+<td><img src="https://a0.muscache.com/im/pictures/hosting/Hosting-1369733738577166114/original/1329df0c-d7eb-4434-be77-1396c26466bb.jpeg?im_w=720" width="400"></td>
 </tr></table>
 
 ### Why #3
@@ -297,21 +372,48 @@ Wicker Park's 6-corners is a nightlife epicenter with the most variety of any ne
 <td><img src="https://media.vrbo.com/lodging/97000000/96070000/96068800/96068794/c2db2d60_edited_76f0.jpg?impolicy=resizecrop&rw=1200&ra=fit" width="400"></td>
 </tr><tr>
 <td><img src="https://media.vrbo.com/lodging/97000000/96070000/96068800/96068794/w1199h704x1y1-b6c622a5.jpg?impolicy=resizecrop&rw=1200&ra=fit" width="400"></td>
+<td><img src="https://media.vrbo.com/lodging/97000000/96070000/96068800/96068794/9d43f1d0_edited_e51e.jpg?impolicy=resizecrop&rw=1200&ra=fit" width="400"></td>
+</tr><tr>
 <td><img src="https://media.vrbo.com/lodging/97000000/96070000/96068800/96068794/w1199h799x1y1-8a63870f.jpg?impolicy=resizecrop&rw=1200&ra=fit" width="400"></td>
+<td><img src="https://media.vrbo.com/lodging/97000000/96070000/96068800/96068794/4990a4a6.jpg?impolicy=resizecrop&rw=1200&ra=fit" width="400"></td>
 </tr><tr>
+<td><img src="https://media.vrbo.com/lodging/97000000/96070000/96068800/96068794/9e9a7f34_edited_1958.jpg?impolicy=resizecrop&rw=1200&ra=fit" width="400"></td>
 <td><img src="https://media.vrbo.com/lodging/97000000/96070000/96068800/96068794/9918f67d_edited_f8c9.jpg?impolicy=resizecrop&rw=1200&ra=fit" width="400"></td>
-<td><img src="https://media.vrbo.com/lodging/97000000/96070000/96068800/96068794/7c91e2ed_edited_bff8.jpg?impolicy=resizecrop&rw=1200&ra=fit" width="400"></td>
-</tr><tr>
-<td><img src="https://media.vrbo.com/lodging/97000000/96070000/96068800/96068794/d5902625.jpg?impolicy=resizecrop&rw=1200&ra=fit" width="400"></td>
-<td><img src="https://media.vrbo.com/lodging/97000000/96070000/96068800/96068794/w1199h800x1y1-25b4ca78.jpg?impolicy=resizecrop&rw=1200&ra=fit" width="400"></td>
 </tr><tr>
 <td><img src="https://media.vrbo.com/lodging/97000000/96070000/96068800/96068794/ce7d92c6.jpg?impolicy=resizecrop&rw=1200&ra=fit" width="400"></td>
-<td><img src="https://media.vrbo.com/lodging/97000000/96070000/96068800/96068794/9e9a7f34_edited_1958.jpg?impolicy=resizecrop&rw=1200&ra=fit" width="400"></td>
+<td><img src="https://media.vrbo.com/lodging/97000000/96070000/96068800/96068794/4db81e64.jpg?impolicy=resizecrop&rw=1200&ra=fit" width="400"></td>
 </tr><tr>
-<td><img src="https://media.vrbo.com/lodging/97000000/96070000/96068800/96068794/4990a4a6.jpg?impolicy=resizecrop&rw=1200&ra=fit" width="400"></td>
+<td><img src="https://media.vrbo.com/lodging/97000000/96070000/96068800/96068794/fe9a71bd_edited_a7eb.jpg?impolicy=resizecrop&rw=1200&ra=fit" width="400"></td>
+<td><img src="https://media.vrbo.com/lodging/97000000/96070000/96068800/96068794/w1199h693x1y1-30ebde11.jpg?impolicy=resizecrop&rw=1200&ra=fit" width="400"></td>
+</tr><tr>
+<td><img src="https://media.vrbo.com/lodging/97000000/96070000/96068800/96068794/w1200h801x0y1-e8ad77d2.jpg?impolicy=resizecrop&rw=1200&ra=fit" width="400"></td>
+<td><img src="https://media.vrbo.com/lodging/97000000/96070000/96068800/96068794/w1199h800x1y1-cdd88287.jpg?impolicy=resizecrop&rw=1200&ra=fit" width="400"></td>
+</tr><tr>
+<td><img src="https://media.vrbo.com/lodging/97000000/96070000/96068800/96068794/7c91e2ed_edited_bff8.jpg?impolicy=resizecrop&rw=1200&ra=fit" width="400"></td>
+<td><img src="https://media.vrbo.com/lodging/97000000/96070000/96068800/96068794/d5902625.jpg?impolicy=resizecrop&rw=1200&ra=fit" width="400"></td>
+</tr><tr>
+<td><img src="https://media.vrbo.com/lodging/97000000/96070000/96068800/96068794/w1199h800x1y1-25b4ca78.jpg?impolicy=resizecrop&rw=1200&ra=fit" width="400"></td>
+<td><img src="https://media.vrbo.com/lodging/97000000/96070000/96068800/96068794/w1199h797x1y1-f32aab89.jpg?impolicy=resizecrop&rw=1200&ra=fit" width="400"></td>
+</tr><tr>
+<td><img src="https://media.vrbo.com/lodging/97000000/96070000/96068800/96068794/186ddabf_edited_8014.jpg?impolicy=resizecrop&rw=1200&ra=fit" width="400"></td>
+<td><img src="https://media.vrbo.com/lodging/97000000/96070000/96068800/96068794/w1180h800x1y1-53863b3b.jpg?impolicy=resizecrop&rw=1200&ra=fit" width="400"></td>
+</tr><tr>
 <td><img src="https://media.vrbo.com/lodging/97000000/96070000/96068800/96068794/b22f82fb.jpg?impolicy=resizecrop&rw=1200&ra=fit" width="400"></td>
-</tr><tr>
 <td><img src="https://media.vrbo.com/lodging/97000000/96070000/96068800/96068794/9094652f.jpg?impolicy=resizecrop&rw=1200&ra=fit" width="400"></td>
+</tr><tr>
+<td><img src="https://media.vrbo.com/lodging/97000000/96070000/96068800/96068794/w1200h799x0y1-569ecca3.jpg?impolicy=resizecrop&rw=1200&ra=fit" width="400"></td>
+<td><img src="https://media.vrbo.com/lodging/97000000/96070000/96068800/96068794/w1200h799x0y1-7a717c43.jpg?impolicy=resizecrop&rw=1200&ra=fit" width="400"></td>
+</tr><tr>
+<td><img src="https://media.vrbo.com/lodging/97000000/96070000/96068800/96068794/a9da048d_edited_df73.jpg?impolicy=resizecrop&rw=1200&ra=fit" width="400"></td>
+<td><img src="https://media.vrbo.com/lodging/97000000/96070000/96068800/96068794/84647a2f_edited_10f7.jpg?impolicy=resizecrop&rw=1200&ra=fit" width="400"></td>
+</tr><tr>
+<td><img src="https://media.vrbo.com/lodging/97000000/96070000/96068800/96068794/07ea1464_edited_f88c.jpg?impolicy=resizecrop&rw=1200&ra=fit" width="400"></td>
+<td><img src="https://media.vrbo.com/lodging/97000000/96070000/96068800/96068794/c94a7914.jpg?impolicy=resizecrop&rw=1200&ra=fit" width="400"></td>
+</tr><tr>
+<td><img src="https://media.vrbo.com/lodging/97000000/96070000/96068800/96068794/51d98289.jpg?impolicy=resizecrop&rw=1200&ra=fit" width="400"></td>
+<td><img src="https://media.vrbo.com/lodging/97000000/96070000/96068800/96068794/df732ff3.jpg?impolicy=resizecrop&rw=1200&ra=fit" width="400"></td>
+</tr><tr>
+<td><img src="https://media.vrbo.com/lodging/97000000/96070000/96068800/96068794/d4921b33.jpg?impolicy=resizecrop&rw=1200&ra=fit" width="400"></td>
 <td><img src="https://media.vrbo.com/lodging/97000000/96070000/96068800/96068794/w1024h681x0y2-5b94511a.jpg?impolicy=resizecrop&rw=1200&ra=fit" width="400"></td>
 </tr></table>
 
@@ -388,26 +490,56 @@ For the full Wicker Park nightlife scene (Emporium, Subterranean, Rainbo Club, e
 ### Photos
 
 <table><tr>
-<td><img src="https://a0.muscache.com/im/pictures/miso/Hosting-48645918/original/5475738b-3ed6-4b32-9cdb-24132cfaffbb.jpeg?im_w=720" width="400"></td>
-<td><img src="https://a0.muscache.com/im/pictures/miso/Hosting-48645918/original/e5a97dc4-aef0-42d9-95c7-ca909ed0d111.jpeg?im_w=720" width="400"></td>
-</tr><tr>
-<td><img src="https://a0.muscache.com/im/pictures/miso/Hosting-48645918/original/551d099e-3022-4211-9d60-551ca9fca699.jpeg?im_w=720" width="400"></td>
 <td><img src="https://a0.muscache.com/im/pictures/miso/Hosting-48645918/original/61931da1-2597-4668-bb26-25d73a66248d.jpeg?im_w=720" width="400"></td>
+<td><img src="https://a0.muscache.com/im/pictures/miso/Hosting-48645918/original/5475738b-3ed6-4b32-9cdb-24132cfaffbb.jpeg?im_w=720" width="400"></td>
 </tr><tr>
+<td><img src="https://a0.muscache.com/im/pictures/miso/Hosting-48645918/original/e5a97dc4-aef0-42d9-95c7-ca909ed0d111.jpeg?im_w=720" width="400"></td>
 <td><img src="https://a0.muscache.com/im/pictures/miso/Hosting-48645918/original/c41ebf45-3d2b-4e75-abfc-4ab8643a84c9.jpeg?im_w=720" width="400"></td>
+</tr><tr>
 <td><img src="https://a0.muscache.com/im/pictures/miso/Hosting-48645918/original/791f7aa0-5e99-4c0a-96da-75adfe4431c3.jpeg?im_w=720" width="400"></td>
+<td><img src="https://a0.muscache.com/im/pictures/miso/Hosting-48645918/original/551d099e-3022-4211-9d60-551ca9fca699.jpeg?im_w=720" width="400"></td>
 </tr><tr>
 <td><img src="https://a0.muscache.com/im/pictures/miso/Hosting-48645918/original/50dea175-fddd-4ab3-827e-e6d43415e376.jpeg?im_w=720" width="400"></td>
-<td><img src="https://a0.muscache.com/im/pictures/miso/Hosting-48645918/original/c045fa8a-0c24-490c-b4bb-21218fcf425d.jpeg?im_w=720" width="400"></td>
-</tr><tr>
 <td><img src="https://a0.muscache.com/im/pictures/miso/Hosting-48645918/original/69ba84a1-3526-498c-a5b0-c887856a510f.jpeg?im_w=720" width="400"></td>
+</tr><tr>
+<td><img src="https://a0.muscache.com/im/pictures/miso/Hosting-48645918/original/8966b195-90cd-4d69-8b8b-13485866db93.jpeg?im_w=720" width="400"></td>
+<td><img src="https://a0.muscache.com/im/pictures/miso/Hosting-48645918/original/03301058-c970-41d8-9b9c-8a4cb88c87bc.jpeg?im_w=720" width="400"></td>
+</tr><tr>
+<td><img src="https://a0.muscache.com/im/pictures/miso/Hosting-48645918/original/b15c5402-b109-4e94-9a44-663ee2843504.jpeg?im_w=720" width="400"></td>
+<td><img src="https://a0.muscache.com/im/pictures/miso/Hosting-48645918/original/44280241-b742-49e2-af16-c53f33a1f67e.jpeg?im_w=720" width="400"></td>
+</tr><tr>
+<td><img src="https://a0.muscache.com/im/pictures/miso/Hosting-48645918/original/508801dc-00d3-4026-bd11-7b87c67d5639.jpeg?im_w=720" width="400"></td>
+<td><img src="https://a0.muscache.com/im/pictures/miso/Hosting-48645918/original/7cd8c583-e76b-4f67-9110-33536a38e0a2.jpeg?im_w=720" width="400"></td>
+</tr><tr>
+<td><img src="https://a0.muscache.com/im/pictures/miso/Hosting-48645918/original/c045fa8a-0c24-490c-b4bb-21218fcf425d.jpeg?im_w=720" width="400"></td>
+<td><img src="https://a0.muscache.com/im/pictures/miso/Hosting-48645918/original/709d937b-5953-4a38-a902-d1aaed06ac4b.jpeg?im_w=720" width="400"></td>
+</tr><tr>
 <td><img src="https://a0.muscache.com/im/pictures/miso/Hosting-48645918/original/5a2f01ef-8b57-4b2b-9394-4e8d15f67031.jpeg?im_w=720" width="400"></td>
+<td><img src="https://a0.muscache.com/im/pictures/miso/Hosting-48645918/original/ffb4dde8-2e99-4069-877a-d4986b9c2555.jpeg?im_w=720" width="400"></td>
 </tr><tr>
 <td><img src="https://a0.muscache.com/im/pictures/miso/Hosting-48645918/original/789c6251-9a66-42a9-96ae-9bcf9d19894a.jpeg?im_w=720" width="400"></td>
-<td><img src="https://a0.muscache.com/im/pictures/miso/Hosting-48645918/original/8966b195-90cd-4d69-8b8b-13485866db93.jpeg?im_w=720" width="400"></td>
+<td><img src="https://a0.muscache.com/im/pictures/miso/Hosting-48645918/original/c23fbf06-613d-415f-94ee-af897f911d08.jpeg?im_w=720" width="400"></td>
 </tr><tr>
-<td><img src="https://a0.muscache.com/im/pictures/miso/Hosting-48645918/original/03301058-c970-41d8-9b9c-8a4cb88c87bc.jpeg?im_w=720" width="400"></td>
-<td></td>
+<td><img src="https://a0.muscache.com/im/pictures/miso/Hosting-48645918/original/ec8e5bc2-152b-4b76-a44a-232106b992ee.jpeg?im_w=720" width="400"></td>
+<td><img src="https://a0.muscache.com/im/pictures/miso/Hosting-48645918/original/4c83a55b-1445-4404-8d98-33f42b3575dd.jpeg?im_w=720" width="400"></td>
+</tr><tr>
+<td><img src="https://a0.muscache.com/im/pictures/miso/Hosting-48645918/original/4fc59b25-30bd-41a8-b710-38f29200d684.jpeg?im_w=720" width="400"></td>
+<td><img src="https://a0.muscache.com/im/pictures/miso/Hosting-48645918/original/b9743860-d770-47b8-ac7c-9046510ac63e.jpeg?im_w=720" width="400"></td>
+</tr><tr>
+<td><img src="https://a0.muscache.com/im/pictures/miso/Hosting-48645918/original/4b759f01-ebc6-4f30-a01e-5e7777b0aea3.jpeg?im_w=720" width="400"></td>
+<td><img src="https://a0.muscache.com/im/pictures/miso/Hosting-48645918/original/2e5598c8-ecaa-4281-bbf9-6713d6cda257.jpeg?im_w=720" width="400"></td>
+</tr><tr>
+<td><img src="https://a0.muscache.com/im/pictures/miso/Hosting-48645918/original/c24eccf0-457e-4137-9ced-21a27ef1b0b1.jpeg?im_w=720" width="400"></td>
+<td><img src="https://a0.muscache.com/im/pictures/miso/Hosting-48645918/original/f4719052-af97-4871-b0c6-41714edff26c.jpeg?im_w=720" width="400"></td>
+</tr><tr>
+<td><img src="https://a0.muscache.com/im/pictures/miso/Hosting-48645918/original/d76473e6-d73f-4de8-8272-08cad2f529a4.jpeg?im_w=720" width="400"></td>
+<td><img src="https://a0.muscache.com/im/pictures/miso/Hosting-48645918/original/9f851e72-1fbd-49d4-b450-248e4ee02ed5.jpeg?im_w=720" width="400"></td>
+</tr><tr>
+<td><img src="https://a0.muscache.com/im/pictures/miso/Hosting-48645918/original/09325aae-7aec-4a0f-9727-12e052d569e3.jpeg?im_w=720" width="400"></td>
+<td><img src="https://a0.muscache.com/im/pictures/miso/Hosting-48645918/original/fdf0c648-c910-4947-a518-7e93b1bc293b.jpeg?im_w=720" width="400"></td>
+</tr><tr>
+<td><img src="https://a0.muscache.com/im/pictures/miso/Hosting-48645918/original/7f9bdc5d-c543-4622-ba18-74a067fbae4e.jpeg?im_w=720" width="400"></td>
+<td><img src="https://a0.muscache.com/im/pictures/miso/Hosting-48645918/original/9a69e791-4452-40a8-8a91-375b666944c9.jpeg?im_w=720" width="400"></td>
 </tr></table>
 
 ### Why #5
